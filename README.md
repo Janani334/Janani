@@ -143,6 +143,6 @@ https://www.linkedin.com/in/m--janani/
 
 <div align="center">
 
-Thank you for visiting my profile! ⭐
+⭐ Thank you for visiting my profile! 
 
 </div>
